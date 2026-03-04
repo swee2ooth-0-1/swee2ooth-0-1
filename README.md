@@ -6,3 +6,4 @@ I'm swee2ooth, Penetration Tester & Cybersecurity Student
   - eJPT
   - eCPPT
   - Collecting certs like exploits 💣
+📫 Let’s connect on LinkedIn https://www.linkedin.com/in/abdelhafid-outaleb-0a75053b4/.
